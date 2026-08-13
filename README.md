@@ -1,2 +1,1 @@
-![Minha Animação](https://i.imgur.com/CoWIGX2.gif)
-<img src="https://i.imgur.com/CoWIGX2.gif" width="300" alt="Animação">
+![Uploading db89a7168a190371a51c556606d47914.gif…]()
