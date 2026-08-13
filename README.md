@@ -1,1 +1,1 @@
-![Minha Animação](https://br.pinterest.com/pin/91338698689315525/)
+![Minha Animação](https://imgur.com/a/yWQ6CJK)
